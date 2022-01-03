@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @jchyr-intellia
+- 📫 You can reach me at jackie.chyr@intelliatx.com
