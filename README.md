@@ -1,2 +1,4 @@
 - 👋 Hi, I’m @jchyr-intellia
-- 📫 You can reach me at jackie.chyr@intelliatx.com
+- 💬 You can reach me on Teams! 
+- 📫 Or you can email me at jackie.chyr@intelliatx.com
+- 😊 Hope you have a lovely day! 
